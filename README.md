@@ -3,7 +3,7 @@
 **FAST-NUCES (Fall 2025)**
 Instructor: **Dr. Usama Arshad** ([usama.arshad@isb.nu.edu.pk](mailto:usama.arshad@isb.nu.edu.pk))
 
-LinkedIn: **Dr. Usama Arshad** (LinkedIn Profile](mailto:usama.arshad@isb.nu.edu.pk))
+LinkedIn: **Dr. Usama Arshad** ([LinkedIn Profile](https://www.linkedin.com/in/usamajanjua9/))
 
 ---
 
